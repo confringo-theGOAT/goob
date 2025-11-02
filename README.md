@@ -1,0 +1,3 @@
+<h1 style="color: cyan; font-size: 25 px;">gooble geep.</p>
+<p style="color: blue; font-size: 15px;">unlike fuckers who use wix, im actually LEARNING SHIT
+<p style="color: red; font-size: 50px;"> HINT HINT YOU FUCKING TINSKIN DIHSUCKERS :bluefacepraying:
